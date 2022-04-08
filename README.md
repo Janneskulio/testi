@@ -3,7 +3,7 @@ terveiwiä
 
 markun terveiset
 
-mitä ihmettä
+mitä ihmeä
 
 
 jaade jööde
